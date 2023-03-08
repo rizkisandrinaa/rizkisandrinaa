@@ -10,3 +10,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything
 - 📫 How to reach me: rizkisandrina19@mhs.mdp.ac.id
 
+![image](https://user-images.githubusercontent.com/109426548/223607727-c6bcf5b4-49d6-4fa8-985b-efe121b06b05.png)
